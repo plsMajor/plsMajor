@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @plsMajor
+- 👋 Hi, I’m plsMajor, but just call me Major.
 - 👀 I’m interested in general coding and I love to play VR games.
