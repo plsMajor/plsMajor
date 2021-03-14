@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @plsMajor
+- 👀 I’m interested in general coding and I love to play VR games.
